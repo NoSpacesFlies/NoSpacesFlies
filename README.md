@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @NoSpacesFlies
 - 📫 How to reach me ... Discord: daylight911_05483
+- 😚 My Skidding Com: https://discord.gg/DtpxpyaPjj
 
 <!---
 NoSpacesFlies/NoSpacesFlies is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
